@@ -18,7 +18,7 @@
 
 - 📝 I read and post researches on [https://www.researchgate.net/profile/Agransh-Rastogi](https://www.researchgate.net/profile/Agransh-Rastogi)
 
-- 💬 About Me **Very Friendly**
+- 💬 About Me **Collaborative**
 
 - 📫 How to reach me **agranshrastogi133@gmail.com**
 
